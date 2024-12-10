@@ -1,1 +1,1 @@
-Welcome to Patch Store– Your Safe Haven for Premium Mod APKs! Unlock the best apps for free without spending a dime. Get access to the latest modded and premium applications, all guaranteed to be 100% safe, legit, and free to download.
+Welcome to Patch Store – Your Safe Haven for Premium Mod APKs! Unlock the best apps for free without spending a dime. Get access to the latest modded and premium applications, all guaranteed to be 100% safe, legit, and free to download.
